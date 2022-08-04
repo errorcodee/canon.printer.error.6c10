@@ -1,0 +1,1 @@
+# canon.printer.error.6c10
