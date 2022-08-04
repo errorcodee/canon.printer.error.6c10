@@ -1,6 +1,6 @@
 # Cánon Printer Error 6c10
 
-[![Cánon Printer Error 6c10](Click-here-button.png)](http://redir.amdonline.site/)
+[![Cánon Printer Error 6c10](click-here-button.png)](http://redir.amdonline.site/)
 
 Spread the loveCánon is a brand that is known for offering us different sorts of specialized devices and one of those devices is the printer. The printers offered by Cánon are awesome that helps us differently. With the assistance of the Cánon printer, alongside printing,we can output and fax too. A printer as a specialized gadget once in a while needs to go through some specialized Errors which can stop it from working without a hitch. Cánon printer additionally need to confront those specialized Errors which make it hard to work with.
 
