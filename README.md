@@ -11,4 +11,4 @@ Spread the loveCánon is a brand that is known for offering us different sorts o
 * Turn on the printer.
 * Press and hold the Stop/Reset button.
 * Press and hold the button you use to make a color copy.
-* If still your problem is not resolved, then you can get rid of your problem by visiting the link *"Cánon Printer Error 6c10"** given by us. Thank you !
+* If still your problem is not resolved, then you can get rid of your problem by visiting the link **[Cánon Printer Error 6c10](https://computersolve.com/canon-printer-error-6c10//)** given by us. Thank you !
